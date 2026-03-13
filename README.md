@@ -1,2 +1,0 @@
-# efrans-link
-Teks ultah
